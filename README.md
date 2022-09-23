@@ -1,2 +1,0 @@
-# ondo
-Tv lokal
